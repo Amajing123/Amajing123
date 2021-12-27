@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Amajing123
-- 👀 I’m interested in mamamia
+- 👀 I’m interested in ffsfsf
 - 🌱 I’m currently learning cdf
 - 💞️ I’m looking to collaborate on exexaxx
 - 📫 How to reach me oofofof
