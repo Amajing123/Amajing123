@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Amajing123
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in mamamia
+- 🌱 I’m currently learning cdf
+- 💞️ I’m looking to collaborate on exexaxx
 - 📫 How to reach me oofofof
 
 <!---
